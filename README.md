@@ -9,7 +9,7 @@
 
 🔍 [Google Scholar](https://scholar.google.com/citations?user=PGZmQA0AAAAJ&hl=tr)
 
- ![image](https://github.com/AVTUNC/AVTUNC/assets/108360264/d2062dda-ed0c-42e1-bf32-455402f388c2)[Medium](https://medium.com/@AliTUNC)
+✍️ [Medium](https://medium.com/@AliTUNC)
     
 
 ## About Me
